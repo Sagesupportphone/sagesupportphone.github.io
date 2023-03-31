@@ -1,0 +1,9 @@
+
+
+Sitemap: https://sagesupportphone.github.io/sitemap.xml
+
+User-agent: *
+Allow: /
+
+User-agent: 
+: /
