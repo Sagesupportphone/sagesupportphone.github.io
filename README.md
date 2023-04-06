@@ -52,4 +52,4 @@ With Sage support, businesses can access powerful reporting and analytics tools 
 
 Scalability:
 Sage support is designed to grow with businesses as their needs change. This means that businesses can start with a basic package and add on additional tools and services as they grow. This helps businesses to avoid overpaying for tools they don't need while ensuring they have access to the tools they require as their business expands.
-
+https://raw.githubusercontent.com/Sagesupportphone/sagesupportphone.github.io/main/Sage%2050%20Support%20phone%20number.jpg
