@@ -4,6 +4,7 @@ As a business owner, it can be frustrating when your accounting software is not 
  is one such solution that can help you get better support for your Sage accounting software.
 
 <img src="https://github.com/Sagesupportphone/sagesupportphone.github.io/blob/main/Sage%2050%20Support%20phone%20number.jpg" alt="Sage 50 support phone number">
+
 At Sage Support, we understand the importance of having a reliable support system to help you with your accounting software. That's why we have put together a team of highly skilled professionals who are dedicated to providing you with the best possible support for your Sage software.
 
 Our team is well-trained in all aspects of Sage software and can assist you with any issues you may be facing. Whether you need help with installation, setup, or troubleshooting, our team is available to assist you.
