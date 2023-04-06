@@ -47,9 +47,10 @@ One of the primary benefits of Sage support is its ability to streamline financi
 Increased Efficiency:
 Sage support also helps businesses to increase efficiency by automating many of their operational processes. For example, payroll management can be automated with Sage support, reducing the time and effort required to process employee paychecks. Similarly, inventory management can be streamlined, enabling businesses to keep track of stock levels and reorder products automatically.
 
+https://i.pinimg.com/originals/3b/bd/c1/3bbdc111f362c3ba7d67f46633a19cf1.jpg
+
 Enhanced Reporting and Analytics:
 With Sage support, businesses can access powerful reporting and analytics tools that enable them to gain valuable insights into their operations. These tools enable businesses to track key performance indicators, such as revenue, profitability, and inventory levels, in real-time, enabling them to make more informed decisions.
 
 Scalability:
 Sage support is designed to grow with businesses as their needs change. This means that businesses can start with a basic package and add on additional tools and services as they grow. This helps businesses to avoid overpaying for tools they don't need while ensuring they have access to the tools they require as their business expands.
-https://raw.githubusercontent.com/Sagesupportphone/sagesupportphone.github.io/main/Sage%2050%20Support%20phone%20number.jpg
