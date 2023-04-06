@@ -2,6 +2,8 @@
 
 As a business owner, it can be frustrating when your accounting software is not working as expected, and you don't have the support you need to fix the issue. In such situations, you need a reliable and efficient support system to help you get back on track. <a href="https://www.accountings-age-50.net/"> Sage 50 support phone number</a> is one such solution that can help you get better support for your Sage accounting software.
 
+<img src="https://www.accountings-age-50.net/wp-content/uploads/2023/04/Sage-50-Support-phone-number.png">
+
 At Sage Support, we understand the importance of having a reliable support system to help you with your accounting software. That's why we have put together a team of highly skilled professionals who are dedicated to providing you with the best possible support for your Sage software.
 
 Our team is well-trained in all aspects of Sage software and can assist you with any issues you may be facing. Whether you need help with installation, setup, or troubleshooting, our team is available to assist you.
@@ -47,7 +49,7 @@ One of the primary benefits of Sage support is its ability to streamline financi
 Increased Efficiency:
 Sage support also helps businesses to increase efficiency by automating many of their operational processes. For example, payroll management can be automated with Sage support, reducing the time and effort required to process employee paychecks. Similarly, inventory management can be streamlined, enabling businesses to keep track of stock levels and reorder products automatically.
 
-<img src="https://i.pinimg.com/originals/3b/bd/c1/3bbdc111f362c3ba7d67f46633a19cf1.jpg">
+
 
 Enhanced Reporting and Analytics:
 With Sage support, businesses can access powerful reporting and analytics tools that enable them to gain valuable insights into their operations. These tools enable businesses to track key performance indicators, such as revenue, profitability, and inventory levels, in real-time, enabling them to make more informed decisions.
